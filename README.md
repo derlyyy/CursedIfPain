@@ -1,2 +1,2 @@
-# CursedIfPain
+# CursedOfPain
  
